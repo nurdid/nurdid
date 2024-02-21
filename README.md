@@ -3,4 +3,5 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on mobile and desctop apps
 - manta network pacific
-6 month ago alone dances
+- 6 month ago alone dances
+- dzabol damage toilet
