@@ -6,3 +6,4 @@
 - 6 month ago alone dances
 - dzabol damage toilet all
 - push propusk na more
+- Denver purty
