@@ -7,3 +7,4 @@
 - dzabol damage toilet all
 - push propusk na more
 - Denver party decimals
+- sekvensor d
