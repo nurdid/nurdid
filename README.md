@@ -7,4 +7,4 @@
 - dzabol damage toilet all
 - push propusk na more
 - Denver party decimals
-- sekvensor dyor 113
+- sekvensor dyor 113 claim
