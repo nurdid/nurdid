@@ -8,4 +8,4 @@
 - push propusk na more
 - Denver party decimals smull
 - sekvensor dyor 113 claim
-- polihedra claim
+- polihedra claim 29 apr
