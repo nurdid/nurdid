@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nurdid
+- 👋 Hi, I’m @nurdid 1968
 - 👀 I’m interested in computers, blochain
 - 🌱 I’m currently learning car
 - 💞️ I’m looking to collaborate on mobile and desctop apps
