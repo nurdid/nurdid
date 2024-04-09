@@ -5,7 +5,7 @@
 - manta network pacific cloclo allowe nonce
 - 6 month ago alone dances
 - dzabol damage toilet all
-- push propusk na more
+- push propusk na more surge
 - Denver party decimals smull
 - sekvensor dyor 113 claim
 - polihedra claim 29 apr closed
