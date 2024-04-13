@@ -9,4 +9,4 @@
 - Denver party decimals smull
 - sekvensor dyor 113 claim
 - polihedra claim 29 apr closed
-- simonelly silk road 1.4
+- simonelly silk road 1.4 r.p.m.
