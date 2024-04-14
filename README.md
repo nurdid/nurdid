@@ -7,6 +7,6 @@
 - dzabol damage toilet all
 - push propusk na more surge
 - Denver party decimals smull
-- sekvensor dyor 113 claim
+- sekvensor dyor 113 claim mainnet
 - polihedra claim 29 apr closed
 - simonelly silk road 1.4 r.p.m.
