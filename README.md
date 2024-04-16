@@ -8,5 +8,5 @@
 - push propusk na more surge
 - Denver party decimals smull
 - sekvensor dyor 113 claim mainnet
-- polihedra claim 29 apr closed
+- polihedra claim 29 apr closed or open
 - 👀 simonelly silk road 1.4 r.p.m.
