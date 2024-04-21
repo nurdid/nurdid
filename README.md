@@ -10,3 +10,4 @@
 - sekvensor dyor 113 claim mainnet
 - polihedra claim 29 apr closed or open
 - 👀 simonelly silk road 49 r.p.m.
+- snek apparate
