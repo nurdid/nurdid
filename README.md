@@ -11,4 +11,4 @@
 - polihedra claim 29 apr closed or open
 - 👀 simonelly silk road 49 r.p.m.
 - snek apparate krep tech
-- cometa
+- cometa keyakut
