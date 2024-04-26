@@ -12,3 +12,4 @@
 - 👀 simonelly silk road 49 r.p.m.
 - snek apparate krep tech
 - cometa keyakut all sign
+- piracetam
