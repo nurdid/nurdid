@@ -11,5 +11,5 @@
 - polihedra claim 29 apr closed or open
 - 👀 simonelly silk road 49 r.p.m.
 - snek apparate krep tech zakrep
-- cometa keyakut all sign
+- cometa keyakut all sign level
 - piracetam morning public cheese
