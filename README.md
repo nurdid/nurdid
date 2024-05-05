@@ -13,4 +13,4 @@
 - snek apparate krep tech zakrep learn
 - cometa keyakut all sign level
 - piracetam morning public cheese
-- winx64 install
+- winx64 install soft
