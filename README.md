@@ -14,4 +14,4 @@
 - cometa keyakut all sign level
 - piracetam morning public cheese
 - winx64 install soft Solomon Key working
-- kidburg pay master
+- kidburg pay master electronic
