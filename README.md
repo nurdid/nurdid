@@ -16,4 +16,4 @@
 - winx64 install soft Solomon Key working
 - kidburg pay master electronic
 - may be together sing 4.4 persent
-- empty viradge
+- empty viradge code
