@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning car
 - 💞️ I’m looking to collaborate on mobile and desctop apps
 - manta network pacific cloclo allowe nonce
-- 6 month ago alone dances
+- 6 month working ago alone dances
 - dzabol damage toilet all cars
 - push propusk na more surge
 - Denver party decimals smull earn
