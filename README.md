@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on mobile and desctop apps
 - manta network pacific cloclo allowe nonce
 - 6 month working ago alone dances
-- dzabol damage toilet all cars
+- dzabol damage toilet all cars pocket
 - push propusk na more surge
 - Denver party decimals smull earn
 - sekvensor dyor 113 claim mainnet
