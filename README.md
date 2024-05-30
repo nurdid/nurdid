@@ -6,7 +6,7 @@
 - 6 month working ago alone dances
 - dzabol damage toilet all cars pocket
 - push propusk na more surge
-- Denver party decimals smull earn
+- Denver party decimals smull earn time
 - sekvensor dyor 113 claim mainnet
 - polihedra claim 29 apr closed or open
 - 👀 simonelly silk road 49 r.p.m.
