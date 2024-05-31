@@ -16,4 +16,4 @@
 - winx64 install soft Solomon Key working
 - kidburg pay master electronic arts
 - may be together sing 4.4 persent simple
-- empty viradge code usv port sport
+- empty viradge code usv port sport ventures
