@@ -9,7 +9,7 @@
 - Denver party decimals smull earn time
 - sekvensor dyor 113 claim mainnet defi
 - polihedra claim 29 apr closed or open
-- 👀 simonelly silk road 49 r.p.m. quadro
+- 👀 simonelly silk road 49 r.p.m. quadro pol
 - snek apparate krep tech zakrep learn open
 - cometa keyakut all sign level up to ath
 - piracetam morning public cheese kasper
