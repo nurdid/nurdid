@@ -5,7 +5,7 @@
 - manta network pacific cloclo allowe nonce
 - 6 month working ago alone dances
 - dzabol damage toilet all cars pocket
-- push propusk na more surge update
+- push propusk na more surge update program
 - Denver party decimals smull earn another time
 - sekvensor dyor 113 claim mainnet defi dunger
 - polihedra claim 29 apr closed or open
