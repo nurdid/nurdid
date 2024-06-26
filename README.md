@@ -8,7 +8,7 @@
 - push propusk na more surge update program
 - Denver party decimals smull earn another time
 - sekvensor dyor 113 claim mainnet defi dunger
-- polihedra claim 29 apr closed or open linea
+- polihedra claim 29 apr closed or open linea bild
 - 👀 simonelly silk road 49 r.p.m. quadro pol
 - snek apparate krep tech zakrep learn open
 - cometa keyakut all sign level up to ath
