@@ -12,7 +12,7 @@
 - 👀 simonelly silk road 49 r.p.m. quadro pol
 - snek apparate krep tech zakrep learn open
 - cometa keyakut all sign level up to ath
-- piracetam morning public cheese kasper
+- piracetam morning public cheese kasper loock
 - winx64 install soft Solomon Key working
 - kidburg pay master zksink electronic arts blazer
 - may be together sing 4.4 persent simple
