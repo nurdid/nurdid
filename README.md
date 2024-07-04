@@ -11,7 +11,7 @@
 - polihedra claim 29 apr closed or open linea bild
 - 👀 simonelly silk road 49 r.p.m. quadro pol
 - snek apparate krep tech zakrep learn open
-- cometa keyakut all sign level up to ath
+- cometa keyakut all sign level up street to ath
 - piracetam morning public cheese kasper loock
 - winx64 install soft Solomon Key working
 - kidburg pay master zksink electronic arts blazer
